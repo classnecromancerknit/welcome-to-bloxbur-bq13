@@ -1,4 +1,4 @@
-#  
+#  Experience welcome to bloxburg like never before with automatic welcome to bloxburg Scripts, the #1 Script. Includes undetectable and one-hit kill
 
 
 
